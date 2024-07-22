@@ -1,6 +1,8 @@
 # Simplex_lattice_design_SLD_Use_Design_Expert_13
 Simplex lattice design (SLD) Use Design Expert 13
 
+https://www.youtube.com/watch?v=C0sjzogc4_4
+
 Link Download Design Expert 13
 
 https://safefileku.com/download/vf5PfcD8K3Io6xl6
